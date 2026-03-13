@@ -14,12 +14,13 @@
 
 
 <p align="center">
-$\color{#FFFFFF}{\text{𝒞 + 𝐻 w2i 𝑺𝑬𝑴𝑰-𝑨𝑭𝑲}}$
+$\color{#FFFFFF}{\text{𝒞 + 𝐻 w2i 𝐒emi-𝒜fk}$
 
 <p align="center">
 $\color{#FFFFFF}{\text{𝒊𝒏𝒕𝒑 5𝒘4 mikafyodor fictionkin}}$
   
 [strawpage](https://decayangell.straw.page)
+[atabook](https://blooddamag3.atabook.org/)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
