@@ -4,7 +4,9 @@
 
 
 <p align="center">
-<img width="2048" height="2048" alt="78 sin título_20260309192525" src="https://github.com/user-attachments/assets/22aa655a-5466-4786-9b1d-fb8bb3f2f991" />
+<img width="2048" height="2048" alt="105 sin título_20260321142722" src="https://github.com/user-attachments/assets/80eb77e4-6f8c-4a85-a407-f0123809ab0c" />
+
+
 
 <p align="center">
 $\color{#FFFFFF}{\text{𝒊𝒏𝒕𝒑 5𝒘4 mikafyodor fictionkin}}$
@@ -12,8 +14,15 @@ $\color{#FFFFFF}{\text{𝒊𝒏𝒕𝒑 5𝒘4 mikafyodor fictionkin}}$
 <p align="center">
 $\color{#FFFFFF}{\text{𝒞 + 𝐻 w2i 𝐒emi 𝒜fk}}$
   
-[strawpage](https://decayangell.straw.page)
-[atabook](https://blooddamag3.atabook.org/)
+<div align="center">
+  
+  [strawpage](https://decayangell.straw.page)
+</div>
+
+  <div align="center">
+    
+  [atabook](https://blooddamag3.atabook.org/)
+</div>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
