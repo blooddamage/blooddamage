@@ -4,7 +4,9 @@
 
 
 <p align="center">
-<img width="2048" height="2048" alt="105 sin título_20260321142722" src="https://github.com/user-attachments/assets/80eb77e4-6f8c-4a85-a407-f0123809ab0c" />
+  
+<img width="2048" height="2048" alt="105 sin título_20260321142722" src="https://github.com/user-attachments/assets/ec8b33b2-af56-412f-a228-ee5d436d758d" />
+
 
 
 
@@ -16,7 +18,7 @@ $\color{#FFFFFF}{\text{𝒞 + 𝐻 w2i 𝐒emi 𝒜fk}}$
   
 <div align="center">
   
-  [strawpage](https://decayangell.straw.page)
+  [strawpage](https://bloddd4mag3.straw.page)
 </div>
 
   <div align="center">
