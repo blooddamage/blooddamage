@@ -18,7 +18,7 @@ $\color{#FFFFFF}{\text{𝒞 + 𝐻 w2i 𝐒emi 𝒜fk}}$
   
 <div align="center">
   
-  [strawpage](https://bloddd4mag3.straw.page)
+  [strawpage](https://bloddd4mag3.straw.page) ꒱
   [atabook](https://blooddamag3.atabook.org/)
 </div>
 
