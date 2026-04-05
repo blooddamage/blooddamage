@@ -4,7 +4,7 @@
 
 <div align="center">
   
-![espresso-cookie](https://github.com/user-attachments/assets/32490e7c-8994-4ac5-9179-104a2134a02d)
+![tumblr_3cb6c6291e0091e0a3224740a33a3a15_91eb4cdc_400](https://github.com/user-attachments/assets/8e963ec3-a67f-4ef1-b693-6d4c969da672)
 </div>
 
 <p align="center">
