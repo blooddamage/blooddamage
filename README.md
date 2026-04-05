@@ -2,13 +2,10 @@
   
   ![h9foxb](https://github.com/user-attachments/assets/b775f83c-1234-41f2-9225-563eb0d62719)
 
-
-<p align="center">
+<div align="center">
   
-<img width="2048" height="2048" alt="105 sin título_20260321142722" src="https://github.com/user-attachments/assets/ec8b33b2-af56-412f-a228-ee5d436d758d" />
-
-
-
+![espresso-cookie](https://github.com/user-attachments/assets/32490e7c-8994-4ac5-9179-104a2134a02d)
+</div>
 
 <p align="center">
 $\color{#FFFFFF}{\text{𝒊𝒏𝒕𝒑 5𝒘4 mikafyodor fictionkin}}$
