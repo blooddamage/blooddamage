@@ -3,8 +3,8 @@
   ![h9foxb](https://github.com/user-attachments/assets/b775f83c-1234-41f2-9225-563eb0d62719)
 
 <div align="center">
-  
-![tumblr_3cb6c6291e0091e0a3224740a33a3a15_91eb4cdc_400](https://github.com/user-attachments/assets/8e963ec3-a67f-4ef1-b693-6d4c969da672)
+
+  <img width="397" height="409" alt="tumblr_bedba4ba3d877f9316c70b5fd437c218_8151e44f_400" src="https://github.com/user-attachments/assets/ccf98c40-8a76-4cbf-b57d-bdcd5f33d5fe" />
 </div>
 
 <p align="center">
