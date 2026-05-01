@@ -15,7 +15,7 @@ $\color{#FFFFFF}{\text{𝒞 + 𝐻 w2i 𝐒emi 𝒜fk}}$
   
 <div align="center">
   
-  [strawpage](https://bloddd4mag3.straw.page) ꒱
+  [strawpage](https://decayangell.straw.page/) ꒱
   [atabook](https://blooddamag3.atabook.org/) ꒱
   [Guns](https://guns.lol/dec4yevil)
 </div>
