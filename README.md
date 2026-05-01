@@ -1,10 +1,10 @@
 <p align="center">
-  
-  ![h9foxb](https://github.com/user-attachments/assets/b775f83c-1234-41f2-9225-563eb0d62719)
+
+<img width="540" height="216" alt="IMG-9348" src="https://github.com/user-attachments/assets/1bf47e52-4afa-4ee3-affd-953ba15012eb" />
+
 
 <div align="center">
-
-  <img width="397" height="409" alt="tumblr_bedba4ba3d877f9316c70b5fd437c218_8151e44f_400" src="https://github.com/user-attachments/assets/ccf98c40-8a76-4cbf-b57d-bdcd5f33d5fe" />
+  <img width="736" height="370" alt="bab0ea96cfcc15d60c225160a393355d" src="https://github.com/user-attachments/assets/7b56645a-654e-4346-b90b-02e715486178" />
 </div>
 
 <p align="center">
