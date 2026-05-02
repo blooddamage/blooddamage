@@ -25,3 +25,13 @@ $\color{#FFFFFF}{\text{𝒞 + 𝐻 w2i 𝐒emi 𝒜fk}}$
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31cb4gfnwomtag4gf6u6cwyyy3d4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
   </a>
 </p>
+
+
+<div align="center">
+
+[ryu](https://github.com/ryvzaki) ೯
+[Luka](https://github.com/VISCHIOS-KING) ೯
+[ramu](https://github.com/Ramudak) ೯
+[Xan](https://github.com/xnlvsnk) ೯
+[yuki](https://github.com/DeadSoulss) ೯
+</div>
