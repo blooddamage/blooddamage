@@ -33,7 +33,6 @@ $\color{#FFFFFF}{\text{𝒞 + 𝐻 w2i 𝐒emi 𝒜fk}}$
 [Luka](https://github.com/VISCHIOS-KING) ೯
 [Mikhail](https://github.com/Ramudak) ೯
 [Xan](https://github.com/xnlvsnk) ೯
-[yuki](https://github.com/DeadSoulInk) ೯
 [vin](https://github.com/quiet-prince)
-೯
+
 </div>
