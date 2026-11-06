@@ -26,7 +26,7 @@ $\color{#FFFFFF}{\text{𝒞 + 𝐻 w2i 𝐒emi 𝒜fk}}$
 </p>
 
 <p align="center">
-$\color{#FFFFFF}{\text{If you see this person, it's not me; they copied my skin.}}$
+$\color{#FFFFFF}{\text{If you see this person, it's not me}}$
 
 <p align="center">
 <img width="880" height="940" alt="IMG-20261106-WA0074" src="https://github.com/user-attachments/assets/3a99e8ae-8753-4add-a935-f04671b9e17c" />
@@ -34,3 +34,8 @@ $\color{#FFFFFF}{\text{If you see this person, it's not me; they copied my skin.
 <p align="center">
 <img width="839" height="411" alt="IMG-20261106-WA0061" src="https://github.com/user-attachments/assets/0e5b7b8b-7ee4-4177-9e78-46005e187f06" />
 
+<p align="center">
+$\color{#FFFFFF}{\text{they copied my skin.}}$
+  
+<p align="center">
+$\color{#FFFFFF}{\text{safe Spanish}}$
